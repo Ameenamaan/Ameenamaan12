@@ -15,7 +15,7 @@ You can click the Preview link to take a look at your changes.
 
 - 👨‍💻 All of my projects are available at [Owner](t.me/MRUnknown_YT)
 
-- 📫 How to reach me **t.me/MRUnknown_YT**
+- 📫 How to reach me **(t.me/MRUnknown_YT)**
 
 [![telegram badge](https://img.shields.io/badge/★Mo𝚅𝙸𝙴𝚂_𝙲𝙻𝚄𝙱_𝟸0𝟷𝟿™★-30302f?style=for-the-badge)](https://t.me/Movies_Club_2019)
 
